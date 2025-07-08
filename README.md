@@ -10,4 +10,4 @@
 
 平台收录了大量精品亚洲成人影片，包括高清片、女优作品、剧情片等，所有影片均经过精心筛选，支持高清播放，无广告干扰。每个视频都提供详细的描述，用户可以根据自己的兴趣快速找到适合的影片，享受无缝的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha7 ）</span>
